@@ -2,7 +2,7 @@
 
 **Due: Sunday, Nov 17, 2024 @ 11:59 PM**
 
-About the author--RUI GUO
+About the author
 
 1. My preferred name is **RUI GUO** and my pronouns are [she/her].
 2. I am a [master] majoring in **XXX** in the Department of [XXX].
